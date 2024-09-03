@@ -1,0 +1,1 @@
+# Mugammad-Ikhsan-Revaldi_09011282328060_Tugas-Data-Mining
