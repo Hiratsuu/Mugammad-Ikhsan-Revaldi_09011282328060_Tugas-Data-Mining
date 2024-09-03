@@ -1,1 +1,3 @@
-# Mugammad-Ikhsan-Revaldi_09011282328060_Tugas-Data-Mining
+Nama: Muhammad Ikhsan Revaldi
+NIM: 09011282328060
+Kelas: SK3C
